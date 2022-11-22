@@ -1,4 +1,4 @@
-![ERINSON VILLARROEL](https://raw.githubusercontent.com/Char-Al/char-al/master/puzzle.jpg)
+![ERINSON VILLARROEL](https://images.app.goo.gl/vxyABsVHn7SegUbp7)
 
 ## Info
 
